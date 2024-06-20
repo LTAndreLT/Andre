@@ -17,7 +17,12 @@
 - Iniciativas de código aberto relacionadas a jogos
 
 ### 📫 Como me encontrar
-
+-
+-
+-
+-
 
 ### ⚡ Curiosidade
 - Sou viciado em jogar uma enorme quantidade de jogos e adoro explorar novos lançamentos
+- 
+- 
