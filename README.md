@@ -17,12 +17,7 @@
 - Iniciativas de código aberto relacionadas a jogos
 
 ### 📫 Como me encontrar
--
--
--
--
+- Email: promgcppc@gmail.com
 
 ### ⚡ Curiosidade
 - Sou viciado em jogar uma enorme quantidade de jogos e adoro explorar novos lançamentos
-- 
-- 
